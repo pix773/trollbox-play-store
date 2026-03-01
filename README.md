@@ -13,3 +13,5 @@ Enjoy!
 Support and help is available!
 
 ©2026, pix773
+
+![Alt text](images/InShot_20260301_173800367.jpg)
